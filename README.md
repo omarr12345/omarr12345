@@ -6,8 +6,7 @@
 - 📫My Email:omar.elbotali@gmail.com 
 - 📫My linked-in:https://linkedin.com/in/omar-elbotally/
 - 📫My CV:https://drive.google.com/file/d/167jzfkBpEJjftOz4kZny6LI2BV2IaEAf/view?usp=sharing
-- 
-- 
+
 
 
 
